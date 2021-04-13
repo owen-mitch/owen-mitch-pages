@@ -25,7 +25,7 @@ Every programmer's gotta have one. Look here for this website's source code!
 #### [Instagram - @owen.mitch](https://instagram.com/owen.mitch)
 Personal Instagram account.  
 
-#### [Twitch - ZER0GTVY](https://twitch.tv/zer0gvty)
+#### [Twitch - ZER0GVTY](https://twitch.tv/zer0gvty)
 _Very_ occasionally stream myself playing games here.
 
 #### [YouTube - ZER0-G](https://youtube.com/channel/UCFaeb0mNF1rGokoJ4_gVpNg)
